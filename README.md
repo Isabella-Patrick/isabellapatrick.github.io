@@ -1,7 +1,5 @@
 # LA'BELLAZ SIGNATURE & KITCHEN
-_
 ###### **Everything Made Fresh**
-
 
 
 ____Let La'Bellaz Kitchen Handle your Cookings Today___
