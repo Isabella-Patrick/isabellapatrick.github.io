@@ -1,6 +1,5 @@
 # LA'BELLAZ SIGNATURE & KITCHEN
-###### **Everything Made Fresh**
-
+### Our Motto: **Everything Made Fresh**
 
 ____Let La'Bellaz Kitchen Handle your Cookings Today___
 
